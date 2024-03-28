@@ -1,4 +1,4 @@
-### Halo semua!!!👋
+### Haloo!!!👋
 
 Perkenalkan nama saya **Joni Satrio Sembiring**<br>
 Saya seorang murid **Study Independent** di [Dicoding](https://www.dicoding.com/)<br>
